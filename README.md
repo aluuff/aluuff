@@ -1,5 +1,5 @@
 
-2nd year MBB SFU student
+2ndyear MBB & Compsci SFU student
 
 - 📫 How to reach me: jla674@sfu.ca
 - 😄 Pronouns: she/her
