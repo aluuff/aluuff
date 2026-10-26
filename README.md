@@ -1,5 +1,4 @@
 
-4thyear MBB & Compsci SFU student
+MBB & Compsci SFU Alumni
 
-- 📫 How to reach me: jla674@sfu.ca
 - 😄 Pronouns: she/her
